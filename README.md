@@ -1,1 +1,1 @@
-# Kamilplaszczymaka.github.io
+# KamilPlaszczymaka.github.io
